@@ -18,7 +18,7 @@
 - 🐛 &nbsp; Problem solver
 - 🔭 &nbsp; I’m keep working on to brushing up my skills
 - 🎨 &nbsp; I'm very creative as you can see 👀
-- 📄 &nbsp; Get to know about my experiences in **[Resume](https://drive.google.com/file/d/1NC2wbhqnEscy6nZHYGo3q0mttN4si0oS/view?usp=sharing)**
+- 📄 &nbsp; Know more about me **[Resume](https://drive.google.com/file/d/1JOVIILdMvcxxLaRPhkoPbPaAhrduCcj5/view?usp=sharing)**
 
 <br>
 
